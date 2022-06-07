@@ -7,4 +7,4 @@
 
 Вашему вниманию предлагаю свое  резюме https://docs.google.com/document/d/1ckFKhPPiV_OTUn56UK7FLCrf48rHYd2_-zlYa_lGuVc/edit?usp=sharing
 
-и портфолио https://drive.google.com/drive/folders/1Y_u7DW8HfqXpPVsGtK2P8Ud3TRAhrhlY🙏. 
+и портфолио https://drive.google.com/drive/folders/1Y_u7DW8HfqXpPVsGtK2P8Ud3TRAhrhlY?usp=sharing🙏. 
